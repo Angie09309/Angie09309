@@ -19,7 +19,7 @@ Actualmente me enfocando en fortalecer mis habilidades en:
 
 Puedes encontrarme en:
 
--   **LinkedIn:** linkedin.com/in/angie-barreto-38430327b
+-   **LinkedIn:** (https://www.linkedin.com/in/angie-barreto-38430327b)
 -   **Correo electrónico:** angiepbg13@gmail.com
 
 
